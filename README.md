@@ -1,2 +1,2 @@
 # Flexi-tshirts-color
-LINK:http://marketupstocks.me/Flexi-tshirts-color/
+LINK:https://mr-00-tuzki.github.io/Flexi-tshirts-color/
